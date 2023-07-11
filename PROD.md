@@ -94,3 +94,36 @@ Nada como uma receita de pão caseiro deliciosa e muito prática! Além de ter u
 4.Após o crescimento, divida a massa, enrole da forma que desejar, coloque nas formas e deixe crescer até dobrar de volume.
 5. Leve para assar em forno médio (200° C), preaquecido, por aproximadamente 30 minutos.
 6.Retire o pão do forno e pincele leite para a casca ficar mais macia.
+
+# Receita Pudim de Leite
+
+Que maravilha! Venha aprender como fazer a receita de pudim simples e fácil. Fica perfeito!
+
+Essa é uma sobremesa perfeita, e para muitos é a melhor sobremesa de todas!
+
+## Ingredientes
+
+### Calda
+1. 1 xícara (chá) de açúcar
+2. meia xícara (chá) de água quente
+
+### Pudim
+1. 1 Leite MOÇA® (lata ou caixinha) 395 g
+2. 2 medidas (da lata) de Leite Líquido NINHO® Forti+ Integral (790 ml)
+3. 3 ovos
+
+## Modo de Preparo
+
+### Calda
+
+1.  Em uma panela de fundo largo, derreta o açúcar até ficar dourado.
+2.  Junte a água quente e mexa com uma colher.
+3.  Deixe ferver até dissolver os torrões de açúcar e a calda engrossar.
+4.  Forre com a calda uma forma com furo central (19 cm de diâmetro) e reserve.
+
+### Pudim
+
+5.  Em um liquidificador, bata todos os ingredientes do pudim e despeje na forma reservada.
+6.  Cubra com papel-alumínio e leve ao forno médio (180°C), em banho-maria, por cerca de 1 hora e 30 minutos.
+7.  Depois de frio, leve para gelar por cerca de 6 horas.
+8.  Desenforme e sirva a seguir.
