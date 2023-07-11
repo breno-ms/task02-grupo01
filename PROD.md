@@ -21,3 +21,34 @@ margarina
 4. Por último, adicione as claras em neve e o fermento.
 5. Despeje a massa em uma forma grande de furo central untada e enfarinhada.
 6. Asse em forno médio 180 °C, preaquecido, por aproximadamente 40 minutos ou ao furar o bolo com um garfo, este saia limpo.
+
+# Strogonoff
+
+## Ingredientes para fazer Strogonoff russo original:
+
+1. 500 gramas de filé mignon picado
+2. 1 cebola média fatiada
+3. 1 colher de sopa de azeite de oliva
+4. 2 colheres de sopa de manteiga
+5. 2 colheres de sopa de farinha de arroz
+6. 1½ xícaras de caldo de carne caseiro
+7. ½ xícara de creme de leite de caixinha
+8. ½ limão (suco)
+9. Sal a gosto
+10. Pimenta do reino moída a gosto
+11. 1 colher de café de páprica picante
+12. 1 colher de café de páprica doce
+13. Salsinha picada a gosto
+
+## Modo de preparo:
+
+1. Em uma frigideira grande comece refogando a cebola no azeite até ficar dourada.
+2. Adicione o filé mignon picado e refogue até a carne ficar dourada. Coloque então o sal e a pimenta do reino a gosto, desligue o fogo e reserve.
+3. O passo seguinte desta receita de strogonoff russo original é começar preparando o molho/creme. Para isso em um recipiente pequeno misture o creme de leite e o suco de limão. Mexa bem para formar um creme chamado creme azedo (por ser meio ácido) e reserve.
+4. Em uma outra panela derreta a manteiga e adicione a farinha de arroz. Misture bem.
+5. Nessa mistura de manteiga e farinha de arroz junte um pouco do caldo de carne previamente aquecido. Misture bem e vá adicionando mais, até acabar.
+6. Continue misturando até formar um creme consistente, semelhante a um molho branco. Esse creme irá tornar esta receita de strogonoff original russo ainda mais gostosa!
+7. Junte então o creme azedo reservado e misture bem.
+8. Adicione o creme à carne, misture bem e acerte os temperos. Se quiser, já pode servir assim! Esta é a versão original russa.
+9. OPCIONAL: como gosto de temperos, adicionei páprica doce e picante - elas ajudam a dar uma corzinha avermelhada ao strogonoff. Misture bem.
+10. Sirva seu strogonoff russo original com salsinha picada por cima e acompanhe com arroz e batata palha! Uma delícia que você não pode deixar de preparar, por isso experimente e conte nos comentários o que achou. Bom apetite
