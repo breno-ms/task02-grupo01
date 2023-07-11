@@ -73,3 +73,24 @@ margarina
 3. Em um refratário, coloque o macarrão, a maionese, a salsinha, a mussarela e os ingredientes refogados
 4. Misture bem e polvilhe queijo ralado
 5. Leve ao forno médio para gratinar o queijo e está pronto para servir
+
+# Receita de Pão Caseiro:
+Nada como uma receita de pão caseiro deliciosa e muito prática! Além de ter um passo a passo simples e fácil, você vai ver como a massa do seu pão vai ficar bem fofinha! Confira agora mesmo como fazer essa delícia!
+
+## Ingredientes:
+1. 1 kg de farinha de trigo aproximadamente 
+2. 1 e 1/2 xícara de leite morno (aprox. 400 ml)
+3. 1/2 xícara de água morna
+4. 1/2 xícara de óleo (aprox. 100 ml)
+5. 4 colheres (sopa) de açúcar (aprox. 200 g)
+6. 1 colher (sopa) de sal
+7. 2 ovos
+8. 30 g de fermento biológico fresco (ou 10 g de fermento biológico seco)
+
+## Modo de Preparo:
+1. Em uma tigela, dissolva o fermento no açúcar e acrescente o sal, os ingredientes líquidos, os ovos e misture muito bem.
+2. Acrescente aos poucos a farinha até formar uma massa macia e sove bem a massa.
+3. Deixe a massa descansar por aproximadamente 1 hora.
+4.Após o crescimento, divida a massa, enrole da forma que desejar, coloque nas formas e deixe crescer até dobrar de volume.
+5. Leve para assar em forno médio (200° C), preaquecido, por aproximadamente 30 minutos.
+6.Retire o pão do forno e pincele leite para a casca ficar mais macia.
