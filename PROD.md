@@ -127,3 +127,17 @@ Essa é uma sobremesa perfeita, e para muitos é a melhor sobremesa de todas!
 6.  Cubra com papel-alumínio e leve ao forno médio (180°C), em banho-maria, por cerca de 1 hora e 30 minutos.
 7.  Depois de frio, leve para gelar por cerca de 6 horas.
 8.  Desenforme e sirva a seguir.
+
+# Receita de brigadeiro:
+Ninguém resiste a essa receita de brigadeiro: ele é o rei das festas de aniversário e é impossível comer um só. Veja agora mesmo como fazer essa delícia de forma simples e prática.
+
+## Ingredientes:
+1. 1 caixa de leite condensado
+2. 1 colher (sopa) de margarina sem sal
+3. 7 colheres (sopa) de achocolatado ou 4 colheres (sopa) de chocolate em pó
+4. chocolate granulado
+
+## Modo de preparo:
+1. Em uma panela funda, acrescente o leite condensado, a margarina e o chocolate em pó.
+2. Cozinhe em fogo médio e mexa até que o brigadeiro comece a desgrudar da panela.
+3. Deixe esfriar e faça pequenas bolas com a mão passando a massa no chocolate granulado.
