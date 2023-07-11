@@ -52,3 +52,24 @@ margarina
 8. Adicione o creme à carne, misture bem e acerte os temperos. Se quiser, já pode servir assim! Esta é a versão original russa.
 9. OPCIONAL: como gosto de temperos, adicionei páprica doce e picante - elas ajudam a dar uma corzinha avermelhada ao strogonoff. Misture bem.
 10. Sirva seu strogonoff russo original com salsinha picada por cima e acompanhe com arroz e batata palha! Uma delícia que você não pode deixar de preparar, por isso experimente e conte nos comentários o que achou. Bom apetite
+
+# Receita de macarrão ao forno
+
+## Ingredientes (6 porções):
+1. 500 g de macarrão caracolinho cozido e escorrido
+2. 3 tomates cortados e sem semente
+3. Salsinha a gosto
+4. 2 dentes de alho picados
+5. 350 g de mussarela ralada ou picada
+6. 300 g de bacon cortado em cubinhos
+7. 1 cebola grande picada
+8. 3 colheres (sopa) de maionese
+9. 2 colheres (sopa) de azeite
+10. 50 g de queijo ralado
+
+## Modo de preparo (40min):
+1. Coloque o bacon em uma panela e misture até dourar
+2. Acrescente o azeite, o alho, a cebola e os tomates
+3. Em um refratário, coloque o macarrão, a maionese, a salsinha, a mussarela e os ingredientes refogados
+4. Misture bem e polvilhe queijo ralado
+5. Leve ao forno médio para gratinar o queijo e está pronto para servir
